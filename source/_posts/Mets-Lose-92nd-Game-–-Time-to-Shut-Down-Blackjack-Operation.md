@@ -1,0 +1,70 @@
+---
+title: Mets Lose 92nd Game – Time to Shut Down Blackjack Operation
+date: 2022-12-20 10:21:25
+categories:
+- Blackjack
+tags:
+---
+
+
+#  Mets Lose 92nd Game – Time to Shut Down Blackjack Operation?
+
+It’s been a rough year for the Mets, who have now lost 92 games with only a handful of games left to play. This has some people calling for the team to shut down its blackjack operation, which has been a major money loser this season.
+
+The Mets set up the blackjack table in the clubhouse as a way to generate some extra revenue. But the team has taken a bath on it this year, losing an estimated $200,000 on blackjack alone.
+
+Team officials are still considering what to do about the blackjack table, but they may decide to shut it down for good. The losses could be enough to make a dent in the team’s already dismal financial situation.
+
+The Mets are not the only team to experiment with blackjack; the Cardinals and Cubs both have tables in their clubhouses as well. But neither of those teams has had as much trouble as the Mets this season.
+
+In fact, the Cardinals and Cubs have both made money on their blackjack tables this year. The Cardinals took in $50,000 while the Cubs made $80,000.
+
+#  Mets Fall 92 Games Back in NL East – Is it Time to Close the Casino?
+
+The Mets fell 92 games back in the NL East this year, finishing dead last. This comes after they made it to the World Series only two years ago. So, is it time to close the casino and give up on the Mets?
+
+It’s certainly not looking good for the Mets right now. The team has failed to put together any consistent success in recent years, and their biggest stars are getting older. David Wright, Yoenis Cespedes, and Noah Syndergaard are all past their prime and won’t be around much longer.
+
+With that said, there is still some hope for the Mets. They have some young talent that could develop into stars in the future. Brandon Nimmo, Michael Conforto, and Amed Rosario all have potential and could lead the Mets back to prominence in the coming years.
+
+In addition, there is always potential for a trade or two that could help revive the team. The Mets have a number of valuable assets that could bring in some talented players in return.
+
+So, is it time to give up on the Mets? Not yet. There is still hope for the future, and with a little bit of luck, they could rebound soon.
+
+#  Mets Lose Another, Now 92 Games Out of First Place – Time to End Blackjack?
+
+The Mets again lost a game, their 92nd out of first place. This means that they have now been mathematically eliminated from playoff contention. With the season winding down, some are calling for the Mets to end blackjack and focus on rebuilding the team.
+
+Blackjack is a casino game in which players try to beat the dealer by getting as close to 21 as possible without going over. The game has been popular among Mets fans in recent years as they have hoped for a turnaround season. However, with the team performing so poorly this year, it may be time to end blackjack and focus on rebuilding the team.
+
+There are a number of reasons why the Mets should focus on rebuilding. First and foremost, the team is not competitive. The Mets are in last place in their division and have only won 54 games this year. Second, there are a number of young players who could benefit from more playing time.Players such as Amed Rosario and Dominic Smith could use more experience in order to improve their skills. Finally, the Mets need to address their pitching issues. They have one of the worst pitching staffs in baseball and need to make some major changes if they want to compete in the future.
+
+Ending blackjack may not be popular among Mets fans, but it is clear that it is time for a change. The team needs to rebuild and focus on developing their young players. Hopefully, they can compete in future seasons and win back the fans’ support.
+
+#  Mets Continue Slide with 92nd Loss, Falling Further Out of Playoff Picture
+
+The New York Mets lost to the Miami Marlins, 8-2, on Sunday afternoon, their 92nd defeat of the season. They are now officially eliminated from playoff contention.
+
+Michael Conforto and Todd Frazier each drove in a run for the Mets, who have now lost eight of their last nine games.
+
+Rookie starter Drew Gagnon allowed six runs on six hits over four innings to take the loss. He is now 0-5 on the season.
+
+"Obviously it's frustrating," Gagnon said. "I'm just trying to do my job and help the team win, but I haven't been able to do that lately."
+
+"He's a young pitcher that's going through some growing pains," Mets manager Mickey Callaway said. "But we still believe in him."
+
+The Marlins got to Gagnon early, scoring four runs in the first inning. Starlin Castro led off with a double and scored on a two-out single by Brian Anderson. JT Riddle then singled home two more runs, and Justin Bour added an RBI single.
+
+Conforto led off the fourth inning with a homer off Marlins starter Wei-Yin Chen, his 23rd of the season. Frazier followed with a double and scored on a two-out single by Asdrubal Cabrera. But that was all the offense the Mets could muster.
+
+Chen allowed two runs on five hits over six innings to earn the win. Kyle Barraclough pitched a perfect ninth inning for his 16th save of the season.
+
+With the loss, the Mets fall to 53-92 on the season, 20 games behind first-place Philadelphia in the National League East Division and 21 games out of a wild card spot
+
+#  Mets Go Down in 92nd Straight Game, Is it Time for a Change?
+
+The Mets have not had a winning season since 2006 and it looks like they are on track to extend that streak this year. With their latest loss, the Mets have now lost 92 games in a row, tying the record for the longest losing streak in MLB history.
+
+There has been much speculation about who should be blamed for the Mets' poor performance over the past few years. Some people say that it is time for a change and that the Mets need to fire their manager and starting pitchers. Others believe that the team just needs some more time to gel and that they will eventually start winning again.
+
+What do you think? Should the Mets fire their manager and starting pitchers? Or do you think they just need more time to improve? Let us know in the comments below!
